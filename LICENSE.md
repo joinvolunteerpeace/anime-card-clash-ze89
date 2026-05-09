@@ -1,4 +1,4 @@
-
+anime card clash advanced Scripts offers the most advanced anime card clash Script, with aimbot and undetectable. Perfect for dominating any match.
 
 
 
